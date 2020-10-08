@@ -1,0 +1,2 @@
+# Wareey-store-Customer-Care-number-8515878762
+Wareey store customer service helpline number 8515878762///8515878762 ... customer care number.. found this company online saying they provide data entry jobs.. I called them up where a person called "sanaya khanna" answered and made me believe that their company was genuine and not fraud.. N for registration i was asked to pay Rs 3850 from which Rs 3000 was refundable..and she said I would also get a legal agreement which I knew was of no use.. before I payed them the amount they kept calling me
